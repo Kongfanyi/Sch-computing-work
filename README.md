@@ -1,1 +1,1 @@
-# Sch-computing-work
+# Ideas
