@@ -1,3 +1,2 @@
-# School-computing-work
-I shall provide some ideas 
-okay bye
+# Random typings 
+Hi I am a normal kid :)
